@@ -1,2 +1,0 @@
-# toptopakillitahtah
-top musun sen
